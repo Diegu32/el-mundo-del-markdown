@@ -1,6 +1,7 @@
 
 # Hola! 👋 Me llamo Diego, vivo en Tucuman, Argentina. 🙂 😃
 
+💻
 
 ### La verdad no se bien por donde empezar pero les voy a contar un poco sobre como fue mi historia, alla por el año 2007 comence una carrera de la cual no estaba seguro pero tenia ganas de probar porque era algo que queria hacer y comence Geologia en la facultad de ciencias naturales, los primeros años me fue bien, comence a trabajar, me descuide y me quedo la carrera pendiente.. luego de unos años conoci a personas que me hablaron de una carrera que parecia interesante y comence a estudiar Ciencias de la educacion (ya se, fui un poco influenciado pero bueno..) estuve en esta carrera varios años pero tampoco pude terminarla, se que he tenido un poco de mala suerte
 
